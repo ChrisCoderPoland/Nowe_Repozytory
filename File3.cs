@@ -1,0 +1,1 @@
+Zmiana nr 3 ok.
